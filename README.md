@@ -10,4 +10,7 @@ From my previous experience, I just can not accept myself to be the intruder of 
 You have some courage and have to be relentless by doing it, it actually makes me even more like you. Now I start to understand why we are YZTDH.
 
 -------
-but it's just too extreme, i know you dont care, but this is not the proper way to solve the problem.
+but it's just too extreme, i know you dont care right now, but ruining everything is not the proper way to solve the problem.
+
+-------
+If you have faith, you will eventually get everything you want.
